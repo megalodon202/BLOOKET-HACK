@@ -1,3 +1,3 @@
 # BLOOKET-HACK
 Blooket Hacks For Everyone!!!!!
-I started Coding 3 Years Ago and made the for everyone!
+just copy this and type in javascript: then paste the code in and have a good time with blooket!!!
