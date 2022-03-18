@@ -1,3 +1,2 @@
 # BLOOKET-HACK
-Blooket Hacks For Everyone!!!!!
-type in javascript: then past the code!!!
+DONOT USE CURRINTLY FIXING BANNING ISSUE
