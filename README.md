@@ -1,2 +1,2 @@
 # BLOOKET-HACK
-DONOT USE CURRINTLY FIXING BANNING ISSUE
+Hello Sorry that took long everything works and will not ban you
